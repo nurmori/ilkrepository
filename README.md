@@ -1,0 +1,2 @@
+# ilkrepository
+deniyoruz bi şeyelrr
